@@ -1,0 +1,1 @@
+Este é o código do meu primeiro site. Embora seja simples, sinto orgulho por tê-lo desenvolvido e estou muito feliz por cultivar cada vez mais amor pela área em que estou envolvida. É uma jornada emocionante e estou ansiosa para aprender e evoluir ainda mais!
